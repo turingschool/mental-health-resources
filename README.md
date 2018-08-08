@@ -16,6 +16,9 @@ Apps are becoming an ever more popular tool for mental wellness. There are thous
 
 [Happify](https://www.happify.com/?srid=ggl_sem_org&c1=112833461&c2=&c3=4979217221,happify&gclid=EAIaIQobChMIueHJpYPe3AIVCqlpCh3OnAf6EAAYASAAEgLvgfD_BwE "Happify")- Happify is a space to overcome negative thoughts and stress and build resilience. It employs techniques and evidence-based interventions in the areas of Cognitive Behavioral Therapy, positive psychology, and mindfulness to help you break old and unhealthful patterns and form new, healthful habits.
 
+### Local Mental Health Resources
+Below you can find 
+
 ### Video Resources
 This section has a combination of videos from experts in the mental health and mindfulness fields, as well as poetry and speeches that can support someone seeking mental health support.
 
@@ -36,6 +39,4 @@ This section has a combination of videos from experts in the mental health and m
 * [Undocujoy-Yosimar Reyes](https://www.youtube.com/watch?v=V1kkdBjASfc "Undocujoy-Yosimar Reyes")
 
 #### Speeches
-* [The Bridge Between Suicide and Life-Kevin Briggs](https://www.youtube.com/watch?v=7CIq4mtiamY "The Bridge Between Suicide and Life-Kevin Briggs")
-
 * [This is Water-David Foster Wallace](https://www.youtube.com/watch?v=PhhC_N6Bm_s "This is Water-David Foster Wallace")
