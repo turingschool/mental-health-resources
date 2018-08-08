@@ -15,3 +15,16 @@ Apps are becoming an ever more popular tool for mental wellness. There are thous
 [SuperBetter](https://www.superbetter.com "SuperBetter")- SuperBetter is a game focusing on increasing resilience and the ability to remain strong, optimistic, and motivated when presented with challenging obstacles in life, like Turing! The app will help you to adopt new habits, improve your skills, strengthen relationships, complete meaningful projects, and achieve lifelong dreams.
 
 [Happify](https://www.happify.com/?srid=ggl_sem_org&c1=112833461&c2=&c3=4979217221,happify&gclid=EAIaIQobChMIueHJpYPe3AIVCqlpCh3OnAf6EAAYASAAEgLvgfD_BwE "Happify")- Happify is a space to overcome negative thoughts and stress and build resilience. It employs techniques and evidence-based interventions in the areas of Cognitive Behavioral Therapy, positive psychology, and mindfulness to help you break old and unhealthful patterns and form new, healthful habits.
+
+### Video Resources
+This section has a combination of videos from experts in the mental health and mindfulness fields, as well as poetry and speeches that can support someone seeking mental health support.
+
+#### Mental Health and Mindfulness Videos
+* [The Power of Vulnerability-Brené Brown](https://www.youtube.com/watch?v=iCvmsMzlF7o "The Power of Vulnerability-Brené Brown")
+
+* [Listening to Shame-Brené Brown](https://www.youtube.com/watch?time_continue=1&v=psN1DORYYV0 "Listening to Shame-Brené Brown")  
+
+* [What to Do When You Lose It Completely-Pema Chödrön](https://www.youtube.com/watch?v=asRKEXq-Y3g "What to Do When You Lose It Completely-Pema Chödrön")
+
+#### Poetry
+* 
