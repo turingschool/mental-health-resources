@@ -27,4 +27,15 @@ This section has a combination of videos from experts in the mental health and m
 * [What to Do When You Lose It Completely-Pema Chödrön](https://www.youtube.com/watch?v=asRKEXq-Y3g "What to Do When You Lose It Completely-Pema Chödrön")
 
 #### Poetry
-* 
+* [And Still I Rise-Maya Angelou](https://www.youtube.com/watch?v=JqOqo50LSZ0 "And Still I Rise-Maya Angelou")
+
+* [Angels of the Get Through-Andrea Gibson](https://www.youtube.com/watch?v=HVZEVfInB_E "Angels of the Get Through-Andrea Gibson") 
+
+* [Your Life-Andrea Gibson](https://www.youtube.com/watch?v=gsUp6Wd_o8I "Your Life-Andrea Gibson")
+
+* [Undocujoy-Yosimar Reyes](https://www.youtube.com/watch?v=V1kkdBjASfc "Undocujoy-Yosimar Reyes")
+
+#### Speeches
+* [The Bridge Between Suicide and Life-Kevin Briggs](https://www.youtube.com/watch?v=7CIq4mtiamY "The Bridge Between Suicide and Life-Kevin Briggs")
+
+* [This is Water-David Foster Wallace](https://www.youtube.com/watch?v=PhhC_N6Bm_s "This is Water-David Foster Wallace")
