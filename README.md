@@ -29,6 +29,8 @@ Turing offers free mental health services to its students. Please contact Alliso
 
 [Servicios de la Raza](http://serviciosdelaraza.org/mental-health/ "Servicios de la Raza")- Servicios de la Raza's Mental Health Program serves residents of Metro Denver who seek assistance with addressing their mental and behavioral health needs including substance abuse.
 
+[UC Denver Counseling Center](http://www.ucdenver.edu/life/services/counseling-center/Pages/default.aspx  "UC Denver Counseling Center") UC Denver Counseling Center provides sliding-scale community mental health services.  
+
 ### Video Resources
 This section has a combination of videos from experts in the mental health and mindfulness fields, as well as poetry and speeches that can support someone seeking mental health support.
 
