@@ -56,3 +56,16 @@ This section has a combination of videos from experts in the mental health and m
 
 #### Speeches
 * [This is Water-David Foster Wallace](https://www.youtube.com/watch?v=PhhC_N6Bm_s "This is Water-David Foster Wallace")
+
+### Web Based Resources
+This section has web-based guides, articles, photoseries, and networks for an array of mental health issues and social groups. 
+
+* [ULifeline: Mental Health Resource Guide](http://www.ulifeline.org "ULifeline: Mental Health Resource Guides")-An online resource for college mental health.
+
+* [Student Stress and Anxiety Guide](https://www.learnpsychology.org/student-stress-anxiety-guide/ "Student Stress and Anxiety Guide")- A student guide to surviving stress and anxiety in college and beyond.
+
+* [The Steve Fund](https://www.stevefund.org "The Steve Fund")-An online resource dedicated to the mental health of students of color.
+
+* [POC & Mental Illness Photo Project](http://diorvargas.com/poc-mental-illness "POC & Mental Illness Photo Project")-A photo project stemming from the lack of media representation of POC (people of color) and mental illness.
+
+* [Cohen Veterans Network](https://www.cohenveteransnetwork.org/clinics/ "Cohen Veterans Network")- A nonprofit network created to serve veterans by providing high-quality, accessible, and integrated mental health care.
