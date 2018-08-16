@@ -69,3 +69,5 @@ This section has web-based guides, articles, photoseries, and networks for an ar
 * [POC & Mental Illness Photo Project](http://diorvargas.com/poc-mental-illness "POC & Mental Illness Photo Project")-A photo project stemming from the lack of media representation of POC (people of color) and mental illness.
 
 * [Cohen Veterans Network](https://www.cohenveteransnetwork.org/clinics/ "Cohen Veterans Network")- A nonprofit network created to serve veterans by providing high-quality, accessible, and integrated mental health care.
+
+* [OSMI: Open Source Mental Illness](https://osmihelp.org/)- This organization focuses on building awareness and providing education and resources on improving mental health in tech. The website includes free ebooks on mental health in tech.
