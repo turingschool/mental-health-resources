@@ -45,6 +45,8 @@ This section has a combination of videos from experts in the mental health and m
 
 * [UCLA Health Guided Meditations-Diana Winston & Eric Lopez](http://marc.ucla.edu/mindful-meditations "UCLA Health Guided Meditations-Diana Winston & Eric Lopez")  
 
+* [How to Make Stress Your Friend-Kelly McGonigal](https://www.ted.com/talks/kelly_mcgonigal_how_to_make_stress_your_friend)
+
 #### Poetry
 * [And Still I Rise-Maya Angelou](https://www.youtube.com/watch?v=JqOqo50LSZ0 "And Still I Rise-Maya Angelou")
 
