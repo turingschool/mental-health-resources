@@ -47,6 +47,18 @@ This section has a combination of videos from experts in the mental health and m
 
 * [How to Make Stress Your Friend-Kelly McGonigal](https://www.ted.com/talks/kelly_mcgonigal_how_to_make_stress_your_friend)
 
+* [Why We All Need to Practice Emotional First Aid-Guy Winch](https://www.ted.com/talks/guy_winch_the_case_for_emotional_hygiene?referrer=playlist-the_importance_of_self_care)
+
+* [All It Takes Is 10 Mindful Minutes-Andy Puddicombe](https://www.ted.com/talks/andy_puddicombe_all_it_takes_is_10_mindful_minutes?referrer=playlist-the_importance_of_self_care)
+
+* [Want To Be Happy? Be Grateful-David Steindl-Rast](https://www.ted.com/talks/david_steindl_rast_want_to_be_happy_be_grateful?referrer=playlist-the_importance_of_self_care)
+
+* [In Praise of Slowness-Carl Honoré](https://www.ted.com/talks/carl_honore_praises_slowness?referrer=playlist-the_importance_of_self_care)
+
+* [Got a Meeting? Take a Walk-Nilofer Merchant](https://www.ted.com/talks/nilofer_merchant_got_a_meeting_take_a_walk?referrer=playlist-the_importance_of_self_care)
+
+* [Own Your Body's Data-Talithia Williams](https://www.ted.com/talks/talithia_williams_own_your_body_s_data?referrer=playlist-the_importance_of_self_care)
+
 #### Poetry
 * [And Still I Rise-Maya Angelou](https://www.youtube.com/watch?v=JqOqo50LSZ0 "And Still I Rise-Maya Angelou")
 
