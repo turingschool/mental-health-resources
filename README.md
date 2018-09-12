@@ -76,6 +76,8 @@ This section has web-based guides, articles, photoseries, and networks for an ar
 
 * [ULifeline: Mental Health Resource Guide](http://www.ulifeline.org "ULifeline: Mental Health Resource Guides")-An online resource for college mental health.
 
+* [NAMI](https://www.nami.org/Find-Support)- An online resource for low and no-cost mental health resources.
+
 * [Student Stress and Anxiety Guide](https://www.learnpsychology.org/student-stress-anxiety-guide/ "Student Stress and Anxiety Guide")- A student guide to surviving stress and anxiety in college and beyond.
 
 * [The Steve Fund](https://www.stevefund.org "The Steve Fund")-An online resource dedicated to the mental health of students of color.
